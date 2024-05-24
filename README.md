@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning STT Cipasung
 - 💞️ I’m looking to collaborate on Project
 - 📫 How to reach me aanganggriawan222@gmail.com
-- 😄 Pronouns: ...
+- 😄 Pronouns: Eng
 - ⚡ Fun fact: I am not perfact but i am is reall
 
 <!---
